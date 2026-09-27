@@ -25,8 +25,23 @@ Have questions about sizes, pricing, or current inventory? Reach out directly:
 *Note: Screenshot the item you want from the price list and text or email it to check current size availability!*
 ---
 
-## 🔥 CURRENT STOCK / AVAILABLE NOW
-• **Chrome Hearts Socks:** $15 each (White / Black)
-• **Supreme Socks:** $15 each (Red / White / Black)
+---
 
-*Message us to check available sizes!*
+## 🔥 CURRENT STOCK / AVAILABLE NOW
+Grab them before they sell out! Message us to check availability or secure your item.
+
+### 🧥 Designer Jackets
+• **Canada Goose Jacket:** Size M — Premium cold-weather protection. ❄️
+• **Moncler Jacket:** Size M — Classic luxury streetwear style. 
+
+### 🧦 Designer Socks & Beanies ($15 & Up)
+• **Chrome Hearts Socks:** $15 each (Available in White / Black)
+• **Supreme Socks:** $15 each (Available in Red / White / Black)
+• **Louis Vuitton Beanies:** One Size Fits All (Classic luxury knits) 👑
+• **Canada Goose Beanies:** One Size Fits All (Warm, winter-ready fit)
+
+### 👖 Luxury Denim
+• **Purple Brand Jeans:** size 28! 🔥
+
+*Note: Screenshot the item you want and text or email it to lock in your order!*
+
